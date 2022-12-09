@@ -22,3 +22,19 @@
 ### HTML
 
 ### Photoshop
+
+## **Education**
+
+Mogilev State University named A.Kuleshov
+
+## ** Languages**
+
+### Russian - native speaker
+
+### Belarussian - native speaker
+
+### English - B1
+
+### Arabic - A1
+
+### Spanish - A1
