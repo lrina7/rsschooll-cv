@@ -25,7 +25,7 @@
 
 ## **Education**
 
-Mogilev State University named A.Kuleshov
+Mogilev State University A.Kuleshov
 
 ## ** Languages**
 
